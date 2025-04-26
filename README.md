@@ -1,0 +1,1 @@
+# Palestinian-District-Data-Management
